@@ -1,7 +1,7 @@
  @JoaoLucas1682
 Brasil, Rio Claro, São Paulo
 - Olá! Eu sou o JoaoLucas1682
-- Eu estou criando um projeto que estou pensando em dar sucesso, e você vai gostar...
+- Eu estou...
 
 - 17/10/???? foi minha data de nascimento.
 - EU TENHO ?? ANOS
